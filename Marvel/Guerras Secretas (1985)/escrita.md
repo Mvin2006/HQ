@@ -1,0 +1,1 @@
+A minissérie original Guerras Secretas (publicada entre 1984 e 1985) foi escrita por Jim Shooter e desenhada por Mike Zeck, Bob Layton e John Beatty.Detalhes da ProduçãoEditora: Marvel ComicsRoteiro: Jim ShooterArte: Mike Zeck, Bob Layton e John BeattyOrigem: A saga foi criada em parceria com a Mattel para lançar uma linha de brinquedos.
